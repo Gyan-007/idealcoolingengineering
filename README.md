@@ -1,2 +1,0 @@
-# IdealCoolingEngineering
-IdealCoolingEngineering Website
